@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @recruitermr
-- 👀 I’m interested in IT talents
+- 👀 I’m interested in talents IT
 - 💞️ I’m looking to improve your job situation
 - 📫 How to reach me marierbusquedas@gmail.com
 
